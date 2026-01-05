@@ -18,6 +18,8 @@ System_And_Network_Administrations
 
 
 
+📄 **Research Paper:**  
+➡️ [Access the Full Paper Here](https://thesesjournal.com/index.php/1/article/view/1490)
 
 
 
